@@ -6,7 +6,7 @@ ________________________________________________________________________________
 
 • If u won't follow Our Terms Of service Or Privacy Policy May Lead Blacklist.
 
-• Neon™
+• Razon™
 
 • Your Age Must Be 13 Or 13+ If U Are Below Than 13+ U Will Bot Ban / Blacklist.
 
@@ -18,19 +18,19 @@ ________________________________________________________________________________
 
 ________________________________________________________________________________________
 
-• Neon™ What Will Store?
+• Razon™ What Will Store?
 
-• Neon™ will Store User ids & Guild Ids For Moderation Commands Purpose
+• Razon™ will Store User ids & Guild Ids For Moderation Commands Purpose
 
 • We Don't Store Ur Privacy Only Bot will Store Guild IDs And User Ids
 
-• We Don't Try To Hack / Nuke Ur Server We Don't Do Like That Neon™ Is Fully Trusted Bot
+• We Don't Try To Hack / Nuke Ur Server We Don't Do Like That Razon™ Is Fully Trusted Bot
 
 ________________________________________________________________________________________
 
-• INVITE Neon™ AND SUPPORT US
+• INVITE Razon™ AND SUPPORT US
 
-• Invite Neon™ Now <3.
+• Invite Razon™ Now <3.
 
 • Join Support Server And Say If U Feel Any Bugs
 
